@@ -1,2 +1,0 @@
-# rapat
-Untuk rapat
